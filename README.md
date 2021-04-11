@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tomole4444
+- 👀 I’m interested in Musik, Videogames, Anime, Manga.
+- 🏫 I’m have school.
+- 📫 How to reach me: Please don't try.
+- 🌐 Find me on YouTube @Tomole4444 (That with the Cat drawing)
